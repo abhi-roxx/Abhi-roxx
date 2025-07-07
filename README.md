@@ -7,6 +7,8 @@
 
 - 🤝 I’m looking for help with **Devops**
 
+- Most Language used **English** 
+
 - 📄 Know about my experiences [https://drive.google.com/file/d/1NJYOF2EgndtqRmlaPgDQn2XiEm6G5oNY/view?usp=drivesdk](https://drive.google.com/file/d/1NJYOF2EgndtqRmlaPgDQn2XiEm6G5oNY/view?usp=drivesdk)
 
 - ⚡ Fun fact **I creates Insta vedios**
